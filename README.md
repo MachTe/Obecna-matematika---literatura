@@ -1,1 +1,1 @@
-# Obecna-matematika---literatura
+# Obecná matematika - literatura
